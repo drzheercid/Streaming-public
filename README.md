@@ -1,4 +1,4 @@
-# Streaming Public
+# [Streaming Public](https://discord.gg/UfGVeVfz)
 
 Code Streaming new 
 
